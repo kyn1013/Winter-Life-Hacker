@@ -8,4 +8,3 @@
 
 ![Untitled](Winter%20Life%200cc45c1a99e54c5792df888744f735d2/Untitled%201.png)
 
-※보수예정※
